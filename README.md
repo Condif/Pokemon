@@ -45,7 +45,7 @@ och strukturerat ert arbete. Dessutom ska presentationen innefatta en reflektera
 
 4. Uppgiften lämnas in i tid!
 
-5.Muntlig presentation är genomförd 拾
+5.Muntlig presentation är genomförd
 
 ## Krav för väl godkänt:
 
